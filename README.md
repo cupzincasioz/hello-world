@@ -10,4 +10,3 @@ interests:**Lifesteal SMP** ![](https://64.media.tumblr.com/d270bab20f86b88773c3
 ![](https://64.media.tumblr.com/82af8e0fdd6335a58d732929f6b08527/3cc6d87223ab52d6-f7/s640x960/2683f18e4ae684fff273eb28cb735ece4a35e6da.gifv)
 
 notes: if you don't know what to call us, typically use the name of our cos! we're not fussy on what you call us, as long as its SFW!
-
